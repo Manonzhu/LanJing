@@ -1,0 +1,2 @@
+# LanJing
+Lan Jing is a project that calls for young people to be aware of the neglected older people around them, Lan Jing is presented in two forms, a video game and an art installation. The two parts are linked, each exuding its own charm in its own field, fluttering its wings like a butterfly waiting to be discovered by a naturalist. As a video game, it allows the player to travel to the other world, to experience the future city of lan jing, to feel its loneliness and desolation as well as its prosperity
